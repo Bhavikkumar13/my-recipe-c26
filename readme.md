@@ -1,0 +1,2 @@
+what is panner tikka ?
+ A popular veg starers or appetizer recipe which is heavily popular in india and also other south east asian countries. basically this in dry version of paneer tikka which is served as party starters. however the gravy version of paneer masala tikka is also hugely popular and is served with roti and chapathi’s.
